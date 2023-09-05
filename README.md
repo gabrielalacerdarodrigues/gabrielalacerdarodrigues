@@ -10,7 +10,7 @@
 
    _gabriela.lacerda.rodrigues@escola.pr.gov.br_
 
-   _@gablacerda_
+   Instagram :  _@gablacerda_
 
    
    
