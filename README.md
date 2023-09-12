@@ -1,6 +1,6 @@
 ### Welcome to my profile! 🌸
 
-`Meu nome é Gabriela Lacerda Rodrigues`
+Meu nome é Gabriela Lacerda Rodrigues
 
  - Estou estudando na Alura
  - Estou me desenvolvendo na linguagem JavaScript
